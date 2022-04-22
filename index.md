@@ -33,11 +33,3 @@ discord juice メ#2755
 ## Questions//Support Contact me!
 
 I would like to do some customer support for free.. just contact me and I will provide as much help as possible.
-
-ColDog Studios:
-
-coldogstudios.github.io
-
-Sl66p Security:
-
-sl66p.github.io
